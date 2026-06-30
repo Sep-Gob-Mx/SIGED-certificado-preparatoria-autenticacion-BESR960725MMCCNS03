@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-BESR960725MMCCNS03
+BESR960725MMCCNS03
